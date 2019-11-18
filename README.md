@@ -4,4 +4,4 @@
 
 All projects here only for study or Noncommercial purposes, NOT FOR COMMERCIAL PURPOSES.
 
-All templates here are download from resource websites, if you have the copyright of any project, contact me with email anye.xml@gmail.com, I will delete it as soon as I notice.
+All templates here are download from internet, if you have the copyright of any project, contact me with email makefoxrush@outlook.com, I will delete it as soon as I notice.
